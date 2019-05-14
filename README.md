@@ -1,2 +1,3 @@
-# duonghd7.github.io
-MyCV
+# Hà Đại Dương
+
+https://duonghd7.github.io/
